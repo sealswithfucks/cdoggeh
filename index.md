@@ -2,7 +2,7 @@
 layout: default
 ---
 
-**Cdog** is a sketchy ass seal who plays NLH like a pussy and hates foreigners.
+**Cdog** is a sketchy ass seal who plays NLH like a pussy 
 
 ![cdog](http://i.imgur.com/pl2sulk.png)
 
