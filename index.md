@@ -6,7 +6,7 @@ layout: default
 
 ![cdog](http://i.imgur.com/pl2sulk.png)
 
-## he is is only useful if....
+## he is only useful if....
 
 * you want on-demand gibberish
 * you want free chips as long as it's under 0.10  
