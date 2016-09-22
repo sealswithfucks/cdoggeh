@@ -4,6 +4,7 @@ layout: default
 
 **Cdog** is a sketchy ass seal who plays courchevel and hates foreigners.
 
+![cdog](http://i.imgur.com/pl2sulk.png)
 
 ## he is is only useful if....
 
