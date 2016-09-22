@@ -14,8 +14,8 @@ layout: default
 
 ![cdog](https://cdn.wallpapersafari.com/2/11/MHTnfN.jpg)
 
-![cdog](http://www.antifraudnews.com/wp-content/uploads/2013/04/scammer.jpg)
-
-![cdog](http://www.antifraudnews.com/wp-content/uploads/2013/04/scammer.jpg)
-
 ![cdog](http://www.ripoffreport.com/d/r1114722-kpethy-qvzprs38sn/NLR114C.gif)
+
+![cdog](http://www.antifraudnews.com/wp-content/uploads/2013/04/scammer.jpg)
+
+
