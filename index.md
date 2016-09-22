@@ -11,6 +11,6 @@ layout: default
 * you want free chips as long as it's under 0.10  
 
 
-![cdog](http://cdn.wallpapersafari.com/2/11/MHTnfN.jpg)
+![cdog](https://cdn.wallpapersafari.com/2/11/MHTnfN.jpg)
 
 
